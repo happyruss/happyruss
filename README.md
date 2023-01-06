@@ -5,4 +5,3 @@
 #### 👯 I’m looking to collaborate on modeled audio, like creating nature sounds from scratch
 ####  💬 Ask me about meditation
 ####  📫 How to reach me: https://www.linkedin.com/in/russell-dobda-81a13a2/
-####  😄 Pronouns: for this lifetime, it's he/his/him
