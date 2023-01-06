@@ -1,4 +1,4 @@
-### Hi 👋, I'm a seasoned professional software developer who writes a lot of meditation apps, leads teams, and has experience in many different platforms and languages.
+### Hi 👋, I'm a seasoned professional software engineer who writes apps, leads teams, learns and simplifies businesses, and has experience in many platforms and languages.
 
 #### 🔭 I’m currently working on native apps and JavaScript
 #### 🌱 I’m currently using Logic Pro for music production
